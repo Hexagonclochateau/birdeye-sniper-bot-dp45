@@ -1,4 +1,4 @@
-# 
+# vip Sniper for birdeye sniper bot | token-launch-monitoring & front-running offers the most advanced birdeye sniper bot, with token-launch-monitoring and front-running. Ideal for
 
 
 
